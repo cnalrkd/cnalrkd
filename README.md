@@ -1,3 +1,3 @@
 ## Hi there 👋
-my name is cnalrkd.
-I want to go home!!!
+이름:추미강
+소속:대구과학고등학교
